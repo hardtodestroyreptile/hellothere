@@ -10,7 +10,7 @@ hi, i'm vel ^_^ nice to meet you
 
 <hr class="solid">  
 
-![](https://files.catbox.moe/yyv2ex.gif) <ins>dni</ins>
+![](https://files.catbox.moe/yyv2ex.gif)⠀<ins>dni</ins>
 - proship/propara
 - proana & any form of anti-recovery
 - under 13
@@ -20,7 +20,7 @@ hi, i'm vel ^_^ nice to meet you
 
 <hr class="solid">
 
-![](https://files.catbox.moe/4y1net.gif) <ins>byi</ins>
+![](https://files.catbox.moe/4y1net.gif)⠀<ins>byi</ins>
 - i make suicide/sh jokes
 - i reclaim slurs
 - i do not pick up on social cues often
@@ -30,7 +30,7 @@ hi, i'm vel ^_^ nice to meet you
 
 <hr class="solid">
 
-![](https://files.catbox.moe/hcjuou.gif) <ins>abt me</ins>
+![](https://files.catbox.moe/hcjuou.gif)⠀<ins>abt me</ins>
 - i selfship with a few characters (bold = main ships)
   - **tartarus** (tornado alley ultimate)
   - boombox & biograft (phighting)
