@@ -36,5 +36,3 @@ hi, i'm vel ^_^ nice to meet you
   - boombox & biograft (phighting)
   - rika seto (d4dj)
   - guest 666 (roblox myths)
-
-<hr class="solid">
