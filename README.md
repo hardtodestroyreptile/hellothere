@@ -4,11 +4,13 @@
 
 <img src="https://files.catbox.moe/oh1it9.png" width="10" height="10">
   
+<p align="center">
 hi, i'm vel ^_^ nice to meet you
 
+<p align="center">
 feel free to int and c+h
 
-[twitter](twitter.com/chunithmyaoi)⠀|⠀[atabook](https://scp682.atabook.org/)⠀|⠀[pronouns](https://pronouns.cc/@scp682)
+<p align="center"><a href="twitter.com/chunithmyaoi">twitter</a>⠀|⠀<a href="https://scp682.atabook.org/">atabook</a>⠀|⠀<a href="https://pronouns.cc/@scp682">pronouns</a>
 
 <hr class="solid">  
 
