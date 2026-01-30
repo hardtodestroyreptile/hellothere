@@ -40,3 +40,13 @@ feel free to int and c+h
   - boombox & biograft (phighting)
   - rika seto (d4dj)
   - guest 666 (roblox myths)
+
+- i enjoy music. a lot 👀
+  - **raise a suilen**
+  - ave mujica
+  - roselia
+  - camellia
+  - laur
+  - t+pazolite
+  - denonbu project
+  - and probably more
