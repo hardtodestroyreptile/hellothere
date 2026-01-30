@@ -10,7 +10,7 @@ hi, i'm vel ^_^ nice to meet you
 <p align="center">
 feel free to int and c+h
 
-<p align="center"><a href="twitter.com/chunithmyaoi">twitter</a>⠀|⠀<a href="https://scp682.atabook.org/">atabook</a>⠀|⠀<a href="https://pronouns.cc/@scp682">pronouns</a>
+<p align="center"><a href="twitter.com/chunithmyaoi">twitter</a>⠀|⠀<a href="https://scp682.atabook.org/">atabook</a>⠀|⠀<a href="discord.com/users/500795284683489290">discord profile</a>⠀|⠀<a href="https://pronouns.cc/@scp682">pronouns</a>
 
 <hr class="solid">  
 
