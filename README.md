@@ -35,6 +35,10 @@ feel free to int and c+h
 <hr class="solid">
 
 ![](https://files.catbox.moe/hcjuou.gif)⠀<ins>abt me</ins>
+- i am an atheistic satanist
+  - i am not affiliated or pledged to any temple, church, organization, etc.
+  - i respect any religious differences as long as it isn't bigotry
+  
 - i selfship with a few characters (bold = main ships)
   - **tartarus** (tornado alley ultimate)
   - boombox & biograft (phighting)
