@@ -19,6 +19,7 @@ feel free to int and c+h
 - proana & any form of anti-recovery
 - under 13
 - forsaken supporters
+- vivziepop supporters (regular hellaverse fans are fine)
 - ivandrew shippers
 - tcc members (including zero day fans)
 - skin copiers (ask for inspo first)
